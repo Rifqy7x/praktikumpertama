@@ -1,1 +1,1 @@
-i step to step to use git bash
+how to get reck
